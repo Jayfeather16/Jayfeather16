@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ... Python
 - 💞️ I’m looking to collaborate on ... Stuff
 - 📫 How to reach me ... Don't reach me
-- 😄 Pronouns: ... Cat lover
-- ⚡ Fun fact: ... i like cats
+- 😄 Pronouns: ... Demon cat lover(so all cats)
+- ⚡ Fun fact: ... Orange cats are brain dead(but I still love them)
 
 <!---
 Jayfeather16/Jayfeather16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
